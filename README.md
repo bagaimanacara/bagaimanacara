@@ -1,1 +1,1 @@
-<h3><a href="https://s.id/undroid" target="_blank" target="_blank" rel="nofollow noindex noopener">www.s.id/undroid</a></h3>Website resmi tempat solusi untuk mengatasi semua masalah pada sosial media kita.
+<h3><a href="https://s.id/undroid" target="_blank" target="_blank" rel="nofollow noindex noopener">www.s.id/undroid</a></h3>Website resmi tempat solusi untuk mengatasi semua masalah pada sosial media kita. 
